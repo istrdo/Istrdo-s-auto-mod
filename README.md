@@ -1,0 +1,1 @@
+# Istrdo-s-auto-mod
